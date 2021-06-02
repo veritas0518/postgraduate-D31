@@ -1,0 +1,2 @@
+# postgraduate-D31
+Today, I really took it. When I was in RFID class, the teacher didn't have a head. I said everything. I asked the teacher if he could add points after class last time. I didn't expect the teacher to think that the demonstration of our group was very good. It was funny enough. Look at the other groups, and spend so much time doing this demonstration, and finally? It is not a short time, and you can do it at will in a day.
